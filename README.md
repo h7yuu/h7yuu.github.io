@@ -18,9 +18,11 @@ JB Milan Romualdo
 ### The red collared dove is a relatively small species, with a length of 20.5–23 cm (8.1–9.1 in) and a weight of around 104 g (3.7 oz).[7] The male has a bluish head and light red-brown body with a black ring round its neck, while the female is similar but pinkish all over.
 ## 6. Philippine Pygmy Woodpecker
 ![image](https://user-images.githubusercontent.com/122416200/213059246-10465774-2884-4a72-9966-de6e7bf3ca82.png)
-
+### The Philippine pygmy woodpecker also known as the Philippine woodpecker, is a species of bird in the woodpecker family. The woodpecker is endemic to the Philippines. Its natural habitats are subtropical or tropical moist lowland forest and subtropical or tropical moist montane forest.
 ## 5. Yellow Vented Bulbul
 ![image](https://user-images.githubusercontent.com/122416200/213059381-1ce3f8a4-0582-4c66-b5c5-8200fb85ec3f.png)
+### The yellow-vented bulbul or eastern yellow-vented bulbul, is a member of the bulbul family of passerine birds. It is a resident breeder in southeastern Asia from Indochina to the Philippines. It is found in a wide variety of open habitats but not the deep forest. It is one of the most common birds in cultivated areas. They appear to be nomadic and roam from place to place regularly. 
+### The yellow-vented bulbul builds a well-camouflaged but fragile, loose, deep, cup-shaped nest from grass, leaves, roots, vine stems, and twigs. The nest is untidy on the outside, but neatly lined with plant fibers. It may be built in a wide range of places from low bushes to high trees. This is a species adapted to humans and may even nest in gardens. The yellow-vented bulbul lays 2–5 eggs from February to June. The yellow-vented bulbul eats berries and small fruits. They also sip nectar, nibble on young shoots, and consume some insects.
 ## 4. Philippine Pied Fintail
 ![image](https://user-images.githubusercontent.com/122416200/213059448-ed403e8e-0de5-4a91-81a0-e3b9566855f4.png)
 ## 3. Olive-Backed Sunbird
