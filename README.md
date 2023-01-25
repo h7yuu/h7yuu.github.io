@@ -1,7 +1,5 @@
-# h7yuu.github.io
-JB Milan Romualdo
 # My Top 10 Favorite Urban Birds in the Philippines
-
+## By: JB Milan Romualdo
 ## 10. Eurasian Tree Sparrow
 ![Eurasian Tree Sparrow](https://user-images.githubusercontent.com/122416200/212784052-c1c99548-0642-4c98-963b-00fdd5b4a303.jpg)
 ### The Eurasian Tree Sparrow is a passerine bird in the sparrow family with a rich chestnut crown and nape, and a black patch on each pure white cheek. The sexes are similarly plumaged, and young birds are a duller version of the adult. This sparrow breeds over most of temperate Eurasia and Southeast Asia, where it is known as the tree sparrow, and it has been introduced elsewhere including the United States, where it is known as the Eurasian tree sparrow or German sparrow to differentiate it from the native unrelated American tree sparrow. Although several subspecies are recognised, the appearance of this bird varies little across its extensive range.
