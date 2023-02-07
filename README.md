@@ -1,4 +1,3 @@
-# The Top 10 Common Urban Birds in the Philippines
 # By: JB Milan Romualdo
 
 ## Did you know that the Philippines host over 530 bird species? 185 of these are endemic and over 60 are threathened to extinction. Some are rarer than the others. Some chose to live on urban areas while others chose to live on forrested terrain. Some are colorful while others prefer not to be seen. On this site I am going to talk about the Top 10 most Common Urban Birds in my community. 
